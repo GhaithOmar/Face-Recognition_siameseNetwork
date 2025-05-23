@@ -1,0 +1,1 @@
+here goes folder of the images contain the name of each individua.
